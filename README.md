@@ -1,0 +1,1 @@
+# Karakteristik_Rangkaian_RLC
